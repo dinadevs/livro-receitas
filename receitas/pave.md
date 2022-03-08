@@ -1,17 +1,19 @@
-#### Pavê de chocolate :
+## Pavê de chocolate :chocolate_bar:
 
-INGREDIENTES
-1 Leite moça (lata ou caixinha) 395 g
-1 medida (da lata ou caixinha) de Leite Líquido Integral
-3 colheres (sopa) de Chocolate em Pó 50% 
-1 colher (sopa) de amido de milho
-1 lata de Creme de Leite
-1 pacote de biscoito tipo champanhe
-raspas de Chocolate Meio Amargo para decorar
-açúcar de confeiteiro para decorar
+INGREDIENTES  
 
-MODO DE FAZER
-Em uma panela, misture o Leite moça, metade do Leite, o Chocolate em Pó 50% e o amido de milho e leve ao fogo baixo, mexendo sempre até obter uma mistura cremosa.
+- 1 Leite moça (lata ou caixinha) 395 g
+- 1 medida (da lata ou caixinha) de Leite Líquido Integral
+- 3 colheres (sopa) de Chocolate em Pó 50% 
+- 1 colher (sopa) de amido de milho
+- 1 lata de Creme de Leite
+- 1 pacote de biscoito tipo champanhe
+- raspas de Chocolate Meio Amargo para decorar
+- açúcar de confeiteiro para decorar
+
+MODO DE FAZER 
+
+Em uma panela, misture o Leite moça, metade do Leite, o Chocolate em Pó 50% e o amido de milho e leve ao fogo baixo, mexendo sempre até obter uma mistura cremosa.  
 
 Retire do fogo e junte o Creme de Leite. Reserve.
 
